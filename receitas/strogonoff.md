@@ -18,10 +18,6 @@ Strogonoff de Frango
 5. Depois coloque a lata de creme de leite e mexa até espalhar, com a mesma lata encha de água e coloque junto, mexa mais uma vez até misturar e deixe levantar fervura.
 6. Pronto, o estrogonofe está pronto para ser servido.
 
-
-
 PREPARO: 40 MIN
 
 RENDIMENTO: 7 PORÇÕES
-
-
