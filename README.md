@@ -3,9 +3,4 @@
 Olá! Bem vindo ao livro receitas 
 
 - strogonoff de frango
-
-
-
-
-
-
+- Lasanha
